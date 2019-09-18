@@ -7,3 +7,6 @@ tu fais chier
 Abra Kadabra Alakazam
 
 A mort les ours polaire et vive les lapins
+
+Pauvre taupinambour !
+Tunnel tunnel !!
